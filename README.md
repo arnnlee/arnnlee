@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @arnnlee
-- 💻 Currently employeed at Hulu | Disney (DMED Technology)
 - 📍 Anaheim, CA
